@@ -23,7 +23,7 @@ The batter should be runny when picked up with a spoon.
 
 ### Filling:
 
-Peel, and grate the apples, simmer together with the sugar/walnuts/cinammon for a few minutes until warm, then drain the water from it (using a kitchen perhaps)
+Peel, and grate the apples, simmer together with the sugar/walnuts/cinammon for a few minutes until warm, then drain the water from it (using a kitchen towel perhaps)
 
 ### Baking:
 
