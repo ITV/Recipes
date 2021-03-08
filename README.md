@@ -28,4 +28,4 @@ Peel, and grate the apples, simmer together with the sugar/walnuts/cinammon for 
 ### Baking:
 
 Line the baking tray with butter and flour (or use baking paper - also makes it easier to remove at the end). Pour half of the batter and bake for 10-12 minutes in a pre-heated oven (~ 180 with fan)
-Take out and layer the apple filling, and then the rest of the batter on top. Pop back in for ~ 40 minutes. Use a toothpick to test if it's done.
+Take out and layer the apple filling, and then the rest of the batter on top. Pop back in for ~ 40 minutes. Use a toothpick to test if it's done. Optional: Sprinkle with icing sugar.
